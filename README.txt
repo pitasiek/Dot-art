@@ -1,0 +1,1 @@
+It is a dot art, inspired by Damien Hirst
